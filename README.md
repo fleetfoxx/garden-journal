@@ -1,0 +1,3 @@
+# Garden Journal
+
+This is my personal garden journal. My wife, my son and I bought our first house in the Summer of 2022, and one of my first projects became building a garden. I don't have much experience growing plants, especially food producing plants, other than occasionally pulling weeds in my mom's gardens when I was young. I recently listened to an episode of the Joe Gardener podcast and in the episode his guest explained that getting started right away was the best way to learn, instead of hesitating to start because you feel like you haven't learned enough yet, so consider this me starting.
